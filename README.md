@@ -9,7 +9,7 @@ This repository provides a simple guide on how to get the best value when sellin
 
 If you want a trusted and professional service, visit:
 
-👉 [Sell Gold Near Me](https://moonstonegold.co.uk/sell-gold-near-me/)
+👉 [Sell Gold Near Me in the UK](https://moonstonegold.co.uk/sell-gold-near-me/)
 
 ---
 
@@ -38,4 +38,4 @@ People often search for:
 This page supports users searching for reliable UK gold buyers and explains how to sell gold safely and efficiently.
 
 For full details, visit:  
-https://moonstonegold.co.uk/sell-gold-near-me/
+👉 [Find a Trusted Gold Buyer Near You](https://moonstonegold.co.uk/sell-gold-near-me/)
